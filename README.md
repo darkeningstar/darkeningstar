@@ -1,1 +1,1 @@
-<img width="736" height="520" alt="SPY X FAMILY Official art" src="https://github.com/user-attachments/assets/65a472b5-a74a-4824-85af-5989ceb7759d" />
+<img width="735" height="547" alt="Spy X Family" src="https://github.com/user-attachments/assets/a4464630-2a63-401c-8eb2-94c84929fb8c" />
