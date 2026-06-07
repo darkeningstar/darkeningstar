@@ -1,7 +1,3 @@
- <img width="372" height="469" alt="spy x family" src="https://github.com/user-attachments/assets/ffe44315-09d8-4883-802e-afe109d7cbf0" />  <img width="372" height="469" alt="_" src="https://github.com/user-attachments/assets/d0129548-f19c-4952-ab90-7ee92384aee7" />
-
-
- you all are so gullible 
-
+you all are insanely gullible, believing some weak lies and taking sides without being fair and getting to know the real story, believing a messed up, outrageous monster pretending to be a victim. dragging people in the drama, even when they've done nothing wrong. you all are nothing but ignorant, disgusting, and pathetic, especially you four cowards, who had done nothing but escalate the problem instead of talking with the others to know the real truth.
 
 
