@@ -1,1 +1,1 @@
-<img width="736" height="414" alt="spy x family _ Season 3 _ ending" src="https://github.com/user-attachments/assets/e5ecec93-45c7-4d8e-97c0-976e35135f2e" />
+<img width="588" height="454" alt="Damian and anya" src="https://github.com/user-attachments/assets/9e4d7686-0240-45e6-87bf-26d891750125" />
