@@ -1,4 +1,1 @@
-<img width="736" height="414" alt="NOT MINE" src="https://github.com/user-attachments/assets/63810021-9851-4b2c-b214-c005b3871631" />
-<img width="736" height="414" alt="_" src="https://github.com/user-attachments/assets/bf7bd578-d827-4330-a198-888a10ea8bef" />
-
-
+<img width="736" height="414" alt="spy x family _ Season 3 _ ending" src="https://github.com/user-attachments/assets/e5ecec93-45c7-4d8e-97c0-976e35135f2e" />
